@@ -1,2 +1,0 @@
-# HQ-ANSWER
-HQ ANSWER
